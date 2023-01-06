@@ -2,7 +2,7 @@
 
 Github Repository：https://github.com/peentooo/zhanshuangpamishi-gaoqingbizhi
 
-release直链：https://github.com/peentooo/bianka-shenhen-shimengbaiyuan/releases/tag/images
+release直链：https://github.com/peentooo/zhanshuangpamishi-gaoqingbizhi/releases/tag/images
 
 百度网盘：https://pan.baidu.com/s/1vl7syhnt__Ts7tz29UrsXA?pwd=peen 
 提取码：peen
