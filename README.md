@@ -1,5 +1,7 @@
 【战双帕弥什】比安卡深痕 拾梦白菀 高清壁纸 原图 4k 6k 8k 高清修复
 
+Github Repository：https://github.com/peentooo/bianka-shenhen-shimengbaiyuan
+
 直链：https://github.com/peentooo/bianka-shenhen-shimengbaiyuan/releases/tag/images
 
 百度网盘：https://pan.baidu.com/s/1vl7syhnt__Ts7tz29UrsXA?pwd=peen 
