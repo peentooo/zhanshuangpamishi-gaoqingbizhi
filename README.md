@@ -5,7 +5,7 @@ https://github.com/peentooo/zhanshuangpamishi-gaoqingbizhi
 ```
 ###### 百度网盘：https://pan.baidu.com/s/1MDcMB8X_-_mrQKwE22T0bA?pwd=peen 提取码：peen
 ###### 阿里云盘：https://www.aliyundrive.com/s/io6QyWUrDub 提取码: f0f4
-![](download.png)
+![](https://tvax4.sinaimg.cn/large/006bMoaQly1ha4y55bj1mj31jg0vcnl5.jpg)
 
 ## 目录
 
